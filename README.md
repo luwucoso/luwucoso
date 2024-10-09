@@ -1,1 +1,1 @@
-thank u for reading me
+please leave
